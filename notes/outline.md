@@ -7,3 +7,12 @@
 6. V They realized they've been followed by agents who are trying to get the device form the, so they most part ways for the mission. Until they get to the final destination
 7. W Go to the lab to place the device... it didn't work
 8. Returns back to their timeline, and they must live with the fact that they know the world is going to a very bad place in the decades to come
+
+Finding lodging
+Transportation disasters (shipwreck)
+Commiting to the mission and not getting side tracked
+Labyrinth (finding eachother)
+
+In this world, D finds herself away from the people who expects her to be a certain way. With K she finds acceptance to be who she is, because despite K's shortcomings. K gives off the air of being non-judgemental and accepting of anyone and everything. In this world with K, D is able to feel free for the first time.
+
+Cyberpunk witch.
