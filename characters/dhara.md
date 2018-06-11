@@ -13,3 +13,6 @@ She believes that by being an upstanding role mode, she can inspire others to be
 D believes in community, considering the greater good at large instead of thinking of short term individual gains. This is where she and K crashes, K acts on the spot. She thinks K  is selfish.
 
 D learns that being a good role model, is not one who is flawless, but one who recovers from mistakes gracefully. D learns that others will still love her despite her failings.
+
+Themes:
+self-acceptence, living with imperfections, freedom
